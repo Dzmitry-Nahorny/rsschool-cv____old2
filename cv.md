@@ -6,7 +6,7 @@
 - skype: Dirdimwork2003
 
 ## About Me
-I am 44 years old, I work
+I am 45 years old, I work
 systems engineer
 in the organization of the regional scale.
 Administration of a geographically distributed information system consisting of district, city, computer networks (servers, workstations, network and telecommunications equipment), technical support for users. Computer equipment park: 500+ workstations, 20+ local LANs with domain controllers connected to a single data transmission network I want to change the field of activity.
