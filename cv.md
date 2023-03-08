@@ -3,7 +3,7 @@
 - Phone: +375 44 715-XX-62
 - E-mail: sneXhome2006@gmаil.com
 - GitHub: Dzmitry-Nahorny
-- skype: Dimdimwork2003
+- skype: Dirdimwork2003
 
 ## About Me
 I am 44 years old, I work
